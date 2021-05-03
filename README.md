@@ -1,0 +1,1 @@
+# sogutucuSistemi.nya.sau
